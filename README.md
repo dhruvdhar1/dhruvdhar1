@@ -15,7 +15,7 @@
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1cZ8hIIxHNxroIhRSQYW-x2JKXXEEX_gg/view?usp=sharing](https://drive.google.com/file/d/1cZ8hIIxHNxroIhRSQYW-x2JKXXEEX_gg/view?usp=sharing)
 
-- ⚡ Fun fact **I am a very outdoorsy person**
+- ⚡ Fun fact **I’ve escaped from over 20 different rooms.**
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
